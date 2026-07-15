@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am providing solutions for businesses and entrepreneurs to grow faster. I have proven my experience in various fields, like real estate, for entrepreneur.
+I am providing solutions for businesses and entrepreneurs to grow faster. I have proven my experience in various fields, like real estate, healthcare , for entrepreneur and custom mobile app development also.
 
 
 ## 🌐 Socials:
